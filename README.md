@@ -1,6 +1,6 @@
 # The Limitation Constraint
 
-**Why AI changes less than you think in Southeast Asian finance - and where it actually pays.**
+**What AI can't change in regulated finance, and where it pays.**
 
 ---
 
